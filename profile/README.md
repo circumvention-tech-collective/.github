@@ -1,0 +1,1 @@
+The Circumvention Tech Collective is a group of technologists dedicated to keeping the internet free from censorship around the world. This includes the most extreme censoring environments, such as Iran, China, and Russia.
